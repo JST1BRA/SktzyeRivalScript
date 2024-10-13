@@ -1,0 +1,2 @@
+# SktzyeRivalScript
+forskyze
